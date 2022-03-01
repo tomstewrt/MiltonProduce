@@ -16,4 +16,4 @@ If you have any questions regarding the privacy and security of your data, pleas
 
 Yours sincerely
 
-The teaem at Milton Produce
+The team at Milton Produce
